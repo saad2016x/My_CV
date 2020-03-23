@@ -1,4 +1,4 @@
 # My CV
 ABOUT ME
 
-I have uplode 
+I have uplouded 
